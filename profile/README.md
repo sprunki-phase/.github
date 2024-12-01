@@ -2,13 +2,11 @@
 
 ## [Play Link 1](https://shorturl.at/6r0I5) - [Play Link 2](https://apkitech.com/)
 
-## [Play Sprunki Phase 2](https://github.com/sprunki-phase-2-online-mod)
+## [Play Sprunki But Gyat](https://modmeme.com/sprunki-gyat/)
 
-## [Play Sprunki Phase 3](https://github.com/sprunki-phase-3-online)
+## [Play Sprunki Gyat](https://apkitech.com/sprunki-but-gyat/)
 
-## [Play Sprunki Phase 4](https://github.com/sprunki-phase-4-online-mod)
-
-## [Play Sprunki Phase 5](https://github.com/sprunki-phase-5-online-mod)
+## [Play SPrunki Phase 6](https://github.com/sprunki-phase-6-mod-online)
 
 ![Sprunki-Phase-11](https://github.com/user-attachments/assets/7d991036-748b-4d9a-9c4e-8dcf99aabff7)
 
